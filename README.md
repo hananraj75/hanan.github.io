@@ -8,5 +8,5 @@
 
 👨‍💻 When I'm not coding, you can find me exploring new technologies, attending meetups and conferences, or contributing to open-source projects.
 
-📫 Feel free to reach me out  I have a personal website at https://thedaviddias.dev where all my social networks are located! You can reach me anywhere over there!
+📫 Feel free to reach me out  I have a personal website at https://hananraj75.github.io/hananportfolio.github.io/ where all my social networks are located! You can reach me anywhere over there!
  
